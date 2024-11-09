@@ -1,0 +1,3 @@
+Website ini adalah platform yang mengeksplorasi berbagai aspek budaya Yogyakarta, dengan fokus utama pada kesenian dan tradisi khas yang diwariskan turun-temurun. Saat ini, konten yang tersedia adalah tentang Batik Yogyakarta, termasuk sejarah dan jenis motif batik khas yang banyak memiliki filosofi mendalam.
+
+Ke depannya, website ini akan terus dikembangkan untuk mencakup lebih banyak aspek budaya Yogyakarta seperti tari-tarian, musik tradisional, bahasa, adat istiadat, dan situs bersejarah. Tujuannya adalah menjadi sumber pengetahuan bagi masyarakat luas yang tertarik pada kekayaan budaya Yogyakarta.
